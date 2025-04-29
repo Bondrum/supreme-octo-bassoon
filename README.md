@@ -1,1 +1,1 @@
-# supreme-octo-bassoon
+# traiding-school
